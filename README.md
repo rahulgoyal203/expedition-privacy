@@ -1,4 +1,4 @@
-# Privacy Policy for Expedition iOS App
+# Privacy Policy for Expedition App
 
 Last Updated: December 14, 2024
 
